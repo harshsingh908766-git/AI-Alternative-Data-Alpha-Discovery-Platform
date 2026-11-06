@@ -651,10 +651,10 @@ Author
 
 Harsh Singh
 
-PhD Scholar-(Finance)
+PhD Scholar - ( Finance )
 Amity University, Greater Noida, Uttar Pradesh, India.
 
-MBA (Finance & Marketing)
+MBA ( Finance & Marketing )
 Dr. A.P.J. Abdul Kalam Technical University, Lucknow.
 
 Research Domains
