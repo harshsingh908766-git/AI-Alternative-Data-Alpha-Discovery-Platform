@@ -963,7 +963,7 @@ The existence of statistical predictive relationships does not establish causal 
 
 Harsh Singh
 
-PhD Scholar-Finance 
+PhD Scholar-Finance
 Amity University, Greater Noida, Uttar Pradesh, India
 
 MBA — Finance & Marketing
